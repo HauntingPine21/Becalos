@@ -10,4 +10,4 @@ Disfruto mucho de actividades como
 * Jugar con mi familia
 * Programar (no se mucho, pero me esfuerzo por aprender)
 
-cualquier tipo de contacto me encuentran en github como @HauntingPine21
+cualquier tipo de contacto me encuentran en github como [Joshua](https://github.com/HauntingPine21)
